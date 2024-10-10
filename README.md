@@ -1,4 +1,4 @@
-Haaii I'm Airy, Star or _Kiro_ as my friends refer me to!
+Haaii!! I'm Airy, Star or _Kiro_ as my friends refer me to!
 
    ★.» I am a artist beginning to try new styles and different ways of traditional art!
             I really enjoy a lot of things, and i'm quite interested in the fandoms i'm in most of the time!
